@@ -1,3 +1,9 @@
 - Avatar: The Last Airbender
 - The Witcher
 - You
+- One Piece
+- Freud
+- The Queen's Gambit
+- Beat
+- Halo
+- Two and a Half Men
