@@ -122,3 +122,4 @@
 - The Social Network
 - The Wave
 - Taxi Driver
+- The Silence of the Lambs
